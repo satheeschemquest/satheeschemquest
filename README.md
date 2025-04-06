@@ -1,4 +1,4 @@
-# 👋 Hello, I’m Sathees Kumar (@satheeschemquest)
+# 👋 Hello, I’m Satheeskumar (@satheeschemquest)
 
 🎯 **Driven by science, powered by curiosity.**
 
